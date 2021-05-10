@@ -1,2 +1,2 @@
 # badbezan
-some devices for my room
+noting yet
